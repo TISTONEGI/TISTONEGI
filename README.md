@@ -1,5 +1,5 @@
 👉About Me
-Hello! My name is Stonegi, and I'm a cybersecurity enthusiast. My nickname stems from something special that inspires me daily on this exciting journey. I'm currently exploring the vast field of cybersecurity, having started my studies this year.
+Hello! My name is Pedro, and I'm a cybersecurity enthusiast. 
 
 🕵️My Areas of Interest
 Cybersecurity
